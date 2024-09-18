@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Xh3nd
+- 👀 I’m interested in developing anything on java
+- 🌱 I’m currently learning java
+- 📫 How to reach me: telegram - @xh3nd
